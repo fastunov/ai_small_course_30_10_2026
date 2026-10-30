@@ -1,0 +1,1 @@
+# ai_small_course_30_10_2026
